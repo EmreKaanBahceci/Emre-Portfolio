@@ -10,8 +10,7 @@ Hi! I'm Emre Kaan Bahçeci, I'm a student of Eskişehir Osmangazi University. Ri
 **Mail:** emrekaanbahceci@gmail.com
 
 
-## Experience
-Update coming soon :)
+
 
 
 ## About me
